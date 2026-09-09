@@ -1,1 +1,0 @@
-# honolulu-management
